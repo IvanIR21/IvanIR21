@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IvanIR21
+- 👀 I’m interested in energy, cooking, philosophy
+- 🌱 I’m currently learning electronic instrumentation 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me tavo_ivan99@hotmail.com
